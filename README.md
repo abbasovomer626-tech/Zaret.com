@@ -1,2 +1,2 @@
 # Zaret.com
-Phone number 0553949476
+Phone number 0505601769
